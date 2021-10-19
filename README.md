@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @2kapko1
+- 👀 I’m interested in web development
+- 🌱 I’m currently learning everything
+- 📫 How to reach me https://www.linkedin.com/in/kacper-skrzyp-754405193/
